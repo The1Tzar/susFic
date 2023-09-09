@@ -11,7 +11,7 @@ title: "Tzar | Earth Pony, Male"
 
 **Race** *: Earth Pony
 
-**Parents** *: Biological: Jackalope, Adoptive: Bloodsurg and Dr Swag Fox
+**Parents** *: Biological: Jackalope, Adoptive: Bloodsurg and Yankee Doodle
 
 ---
 
