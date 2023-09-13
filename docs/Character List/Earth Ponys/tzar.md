@@ -11,15 +11,16 @@ title: "Tzar | Earth Pony, Male"
 
 **Race** *: Earth Pony
 
-**Parents** *: Biological: Jackalope, Adoptive: Bloodsurg and Dr Swag Fox
+**Parents** *: Biological: Sunset Shimmer and Star Stream, Adoptive: Blood Needle and Yankee Doodle
 
 ---
 
 **Special Trait:**
- to be expanded
-
+ Is really cute a special trait?
 **Notes:** 
-Married to Snek in current year, nuetral possibly antagonist
+Married to Snek in current year, nuetral possibly antagonist (against the monarchy), once in the Miltary, currently supporting the revolution,
+loves explosions and artillery, habit for mischief
+
 
 *Appearance (Add an image URL of your ponytown OC/OC)*:*
 
